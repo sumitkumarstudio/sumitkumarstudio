@@ -23,7 +23,7 @@ I believe good design isn't just about how things look — it's about solving pr
 - 🎨 Web Design · Web Development · Branding · UI/UX
 - 🌱 Currently growing my agency into a globally recognized creative brand
 - 🤝 Open to collaborations with startups, creators, and businesses that value quality
-- 📫 Reach me at: **your-email@example.com**
+- 📫 Reach me at: sumitgahlot256@gmail.com
 
 ---
 
